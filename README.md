@@ -1,1 +1,1 @@
-# 📚 Diploma Project Description
+# 📚 Diploma Project
